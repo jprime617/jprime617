@@ -1,5 +1,8 @@
 # 💫 About Me:
-16 anos adoro programar e gosto de game maker studio 2
+16 anos
+fazendo o ensino médio
+cursando tecnico do senai
+adoro game  maker studio 2
 
 
 ## 🌐 Socials:
