@@ -1,6 +1,6 @@
 # 💫 Sobre mim:
-16 anos<br>fazendo o ensino médio<br>cursando tecnico do senai        ![](https://ih1.redbubble.net/image.1926064825.0716/st,small,507x507-pad,600x600,f8f8f8.u1.jpg)<br>adoro game  maker studio 2<br>
-
+16 anos<br>fazendo o ensino médio<br>cursando tecnico do senai<br>adoro game  maker studio 2<br>
+![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSZGNGAqyPZSX3-BLXl4JUhCWysLDrJ8q9xrw&usqp=CAU)
 
 
 ## 🌐 Redes Sociais:
