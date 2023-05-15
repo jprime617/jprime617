@@ -1,8 +1,5 @@
 # 💫 About Me:
-16 anos
-fazendo o ensino médio
-cursando tecnico do senai
-adoro game  maker studio 2
+16 anos<br>fazendo o ensino médio<br>cursando tecnico do senai<br>adoro game  maker studio 2
 
 
 ## 🌐 Socials:
