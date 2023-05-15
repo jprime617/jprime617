@@ -1,5 +1,6 @@
 # 💫 Sobre mim:
-16 anos<br>fazendo o ensino médio<br>cursando tecnico do senai<br>adoro game  maker studio 2
+16 anos<br>fazendo o ensino médio<br>cursando tecnico do senai<br>adoro game  maker studio 2<br>
+![](https://c4.wallpaperflare.com/wallpaper/227/436/965/anime-mobile-suit-gundam-iron-blooded-orphans-hd-wallpaper-preview.jpg)
 
 
 ## 🌐 Redes Sociais:
