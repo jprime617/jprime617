@@ -1,6 +1,7 @@
 # 💫 Sobre mim:
 16 anos<br>fazendo o ensino médio<br>cursando tecnico do senai<br>adoro game  maker studio 2<br>
 ![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSZGNGAqyPZSX3-BLXl4JUhCWysLDrJ8q9xrw&usqp=CAU)
+![](https://media.tenor.com/FkHUrHa0vwAAAAAC/cooler-dbz.gif)
 
 
 ## 🌐 Redes Sociais:
