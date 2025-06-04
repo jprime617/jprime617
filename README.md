@@ -1,5 +1,5 @@
 # 💫 Sobre mim:
-17 anos<br>fazendo o ensino médio<br>cursando tecnico do senai<br>adoro game  maker studio 2<br>
+18 anos<br>cursando Ciência de Dados<br><br>
 
 
 
