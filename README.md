@@ -1,5 +1,5 @@
 # 💫 Sobre mim:
-18 anos<br>cursando Ciência de Dados<br><br>
+19 anos<br>cursando Ciência de Dados 3º Fase<br><br>
 
 
 
